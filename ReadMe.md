@@ -5,7 +5,7 @@
 
 - Ask me about **C++ & Olympic Programming**
 
-- How to reach me **yumiarakawafm@gmail.com**
+- Reach me at **yumiarakawafm@gmail.com**
 
 - Fun fact **I probably have way too many hobbies :)**
 
